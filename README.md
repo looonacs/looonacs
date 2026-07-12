@@ -1,6 +1,7 @@
 <div align="center">
  
 <a href="https://looonacs.atabook.org/"> ATA ! =0=</a>
+<a href="https://looonacs.straw.page"/>  STRAWPAGEEEEEEEEEEEEEEEEEEEEEEE !!! ^_^ </a>
 
 <div align="center">
 
